@@ -1,1 +1,0 @@
-# madja-as-park-guide
